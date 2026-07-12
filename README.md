@@ -1,3 +1,1 @@
-##READ THIS
-
-Looking for contributors and builders to make this project real.
+**Looking for contributors and builders to make this project real.**
