@@ -1,1 +1,1 @@
-**Looking for contributors and builders to make this project real.**
+**Tor and other networks are slow trying to make this version better than all of them with 2026 systems, the clearnet(ths net) is full of algorithms I plan to make a network with freedom not ran by coporations.**
